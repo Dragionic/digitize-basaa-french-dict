@@ -1,0 +1,1 @@
+# digitize-basaa-french-dict
